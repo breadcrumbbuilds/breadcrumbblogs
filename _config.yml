@@ -7,7 +7,7 @@
 # https://learnxinyminutes.com/docs/yaml/
 
 title: Brad Crump
-description: Welcome to my website. I'll get it everything up and running soon enough.
+description: A place where I blog about my experience growing as a Software Developer.
 github_username: breadcrumbbuilds
 # you can comment the below line out if your repo name is not different than your baseurl
 github_repo: 'breadcrumbblogs'
