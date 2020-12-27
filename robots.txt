@@ -1,1 +1,1 @@
-Sitemap: https://breadcrumbbuilds.github.io/breadcrumbblogs/sitemap.xml
+Sitemap: https://bradcrump.ca/sitemap.xml
