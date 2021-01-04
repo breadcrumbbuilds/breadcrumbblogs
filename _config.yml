@@ -6,8 +6,8 @@
 # https://learn-the-web.algonquindesign.ca/topics/markdown-yaml-cheat-sheet/#yaml
 # https://learnxinyminutes.com/docs/yaml/
 
-title: Brad Crump
-description: A place where I blog about my experience growing as a Software Developer.
+title: Bread Crumb Blogs
+description: Bread Crumb Blogs encompasses my thoughts at a point in time. It is not guaranteed that the opinions expressed within this domain persist beyond the time of writing.
 github_username: breadcrumbbuilds
 # you can comment the below line out if your repo name is not different than your baseurl
 github_repo: 'breadcrumbblogs'
