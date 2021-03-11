@@ -1,0 +1,25 @@
+---
+toc: false
+layout: post
+description:
+categories: []
+title:
+---
+
+What I can only described as poppy jazz dances in the musty air. There's something to the music, a loneliness doused in distraction, like the heart of a mind can't notice its hemorraghing if its focus remains zeroed in on something placid and broken, like a spring lake. Jazz is plain, at least to the untrained ear. It is but a two dimensional light in the night sky, some far away lamp to light up the darkness.
+
+The local bookstore plays this kind of music every day. I visit once a week, at least, and without fail the music jostles my hips side to side. My arms sway. I dance along, to some obscure radio station back east. Somehow fitting here, in the heart of the Cariboo, hundreds of Kilometers from the next bookstore.
+
+Contagion. Coronavirus. Such and such disease, this and that. The new releases section is chalk full of rushed, immuno-based content. Writing a book about a pandemic seems like a worthy, exhilirating experience, especially given the economic incentives at play. Though, I wonder if we're not sick of this content. For a year, there's been a firehose of a single subject aimed squarely at our ear drums, retinas, and nostrils. The sickening sterile smell of sanitizer, the awfully tragic stories of loved-ones gone too soon, or elders passing on a little too quickly, like a novel hitting the shelves in hopes of capitalizing on a trend.
+
+Live seems to be about generation and consumption, and the ever volatile balance between the two. Where there's energy by way of food to be consumed, you'll find an organism adapting or adapted to eating it. I think there was a planet earth episode that showed a catfish in India that learned to eat birds that flew a little too close to the streams miniscus. Ever been hungry, like really hungry? If you have (I haven't, I'm guessing), I'll bet you've understood why a fish might convert its diet from microorganisms to a full-fledged flyer. Where there's a buffet, you'll soon find a hungry catfish.
+
+Last night I joined the app Clubhouse. I was excited to try out the listening service after my favourite podcast host, Lex Fridman, raved about the platform. He spoke of this new intimate dynamic where people showed respect for one another by listening thoughtfully, by waiting their turn to speak, almost like real conversation if you can believe it. What you find on Clubhouse is an array of communities discussing commonality, or difference, but always respectfully. In the 10 rooms I briefly visited I didn't hear one conflict - just pure collaboration, which got me thinking. If that fish never encountered the conflict of no food, would it have ever learned to leap from the stream's surface, catipulting itself from all its ever known to dine on a meaty songbird?
+
+So it mostly seems like that two dimensional light in the sky, this app. The contagion books on the shelves the same. That first fish figured out how to not only eat, but feast. Care to guess what the other fish around it learned to do? Starve or adapt, baby. There's a whole region of these suckers that dine on songbirds. One strong fish that figured what the hell, I'll give these chirpy suckers a taste, then a ton of fish followed.
+
+Watch a child sometime. They're so cute, there movements are unpredictable, chaotic, like they're in a world of their own. They are, until they watch and immitate, then they're no longer cute - they're adopting habits, adapting, performing some unwritten script of regressing to the mean. Every now and then they don't though, they grow up to create an app instead of flock to use it.
+
+Notice the red car, the yellow 'Driving School' written accross each panel, the lady in the passenger seat. Notice her patience, a calming prescense to anxiety-ridden teens. Notice she's occupying the passenger seat of a vehicle, it's seats are upholstered with that 90's material that still feels bristly after decades of anxiety-level panting of distacted teen driver's breath. Notice the wear in the steering wheel's wood, how many hands have wrung its circumference anticipating a jolt of freedom they didn't yet know. Notice this passenger, how she is in a state of calm despite her precarious profession. Driving is one of the most dangerous things we do. This woman sits next to objectively the most distracted demographic of humans and tries to teach them how to master a practice that seems as rudimentary as the moon's light. Try to notice that the moon is a three dimensional object, a giant rock floating in space an unfathomable amount of songbird wingflaps away from you, here, on this rock, that is itself a three dimensional object, and you are on it, all N dimensions of you. Try hard, to spread your wings and fly even though you're just a starving fish. Listen to the jazz. Breathe the musty air in deep. You're here, vertical, literally upright. One day you'll perish.
+
+Today is not that day.
