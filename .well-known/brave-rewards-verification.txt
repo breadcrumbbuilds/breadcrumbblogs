@@ -1,0 +1,4 @@
+This is a Brave Rewards publisher verification file.
+
+Domain: bradcrump.ca
+Token: 397ff07b6dbd3f9f39084c941d680c50e8f6fbc0e39c2cdbe2518ab3c1046dab
